@@ -1,4 +1,4 @@
-## wip 🥹
+## wip bc im a LOSER!!! 🥹
 <!--
 **honoraryirken/honoraryirken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
