@@ -2,6 +2,11 @@
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a></p>
 
-<p align="center">work in progress 🥹</p>
+<label for="test">Testing:</label>
+<select id="test" name="test">
+  <option value="test 2">Test 2</option>
+  <option value="test 3">Test 3</option>
+  <option value="test 4">Test 4</option>
+</select>
 
 <img width="2048" height="317" alt="tumblr_31d50f24e9150c92c1e249513802ea8d_4ec58845_2048" src="https://github.com/user-attachments/assets/8413d019-c369-4f9a-9054-1093686d046e" />
