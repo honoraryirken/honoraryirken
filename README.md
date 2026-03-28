@@ -14,7 +14,7 @@
 
 <p align="center">☆ I LOVE MY GIRLS!! I am a nonsharing Dark Enchantress Cookie riako. If you romantically yumeship with her, please DNI! ☆ I am also a selective sharing White Lily yumeshipper. If you romantically yumeship with her, IWC!</p>
 
-<p align="center">☆ I am an age regressor, and I typically regress to a baby and toddler age. Please interact with caution, for I don't have any specific skins to notify others that I am regressed.</p>
+<p align="center">☆ I am an age regressor, please interact with caution, for I don't have any specific skins to notify others that I am regressed.</p>
 
 <img width="1600" height="120" alt="seaval" src="https://github.com/user-attachments/assets/518209ce-d8e2-46cf-9165-9eb7ff087b28" />
 
