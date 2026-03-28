@@ -3,7 +3,8 @@
 
 ******
 
-<img width="769" height="60" alt="IMG_9340" src="https://github.com/user-attachments/assets/b30344ca-c15e-41f0-9df5-bdbee1d63427" />
+<img width="2048" height="319" alt="tumblr_75b27fff4ad09201c9b5bd7db3bee1cb_edb0bd68_2048" src="https://github.com/user-attachments/assets/cbffade8-543b-41fe-9a6a-9034243d98f9" />
+
 
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a></p>
@@ -16,4 +17,4 @@
 
 <p align="center">☆ I am an age regressor, and I typically regress to a baby and toddler age. Please interact with caution, for I don't have any specific skins to notify others that I am regressed.</p>
 
-![IMG_9153](https://github.com/user-attachments/assets/e8d5d2bd-94c0-4f15-b826-efe0089dfba9)
+<img width="2048" height="317" alt="tumblr_31d50f24e9150c92c1e249513802ea8d_4ec58845_2048" src="https://github.com/user-attachments/assets/11a70ef9-5ec8-4593-9ce6-42e7bfe0cdae" />
