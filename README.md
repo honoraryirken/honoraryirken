@@ -5,6 +5,8 @@
 
 <img width="1584" height="211" alt="tumblr_9cc9dcd1fc2d94ad6de4179c8b24870f_629adeb1_2048" src="https://github.com/user-attachments/assets/be68c39d-d673-40e8-8b6f-3d232eae41ac" />
 
+(divider by @quinnysnursery on Tumblr.)
+
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://honoraryirken.tumblr.com/">Tumblr</a> | <a href="https://mamasbabyangel.tumblr.com/">Agere Side Blog (also Tumblr)</a></p>
 
