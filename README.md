@@ -8,7 +8,7 @@
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a></p>
 
-<p align="center">☆ hullo! I go by many names, I mainly go by Zim!</p>
+<p align="center">☆ hullo! I go by many names, but I mainly go by Zim!</p>
 
 <p align="center">☆ I don't feel comfortable sharing my exact age. I will say that I am a teenager, however.</p>
 
