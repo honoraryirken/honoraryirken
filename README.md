@@ -6,7 +6,7 @@
 <img width="1584" height="211" alt="tumblr_9cc9dcd1fc2d94ad6de4179c8b24870f_629adeb1_2048" src="https://github.com/user-attachments/assets/be68c39d-d673-40e8-8b6f-3d232eae41ac" />
 
 
-<p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a></p>
+<p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> <a href="https://honoraryirken.tumblr.com/">Tumblr</a></p>
 
 <p align="center">☆ hullo! I go by many names, but I mainly go by Zim!</p>
 
