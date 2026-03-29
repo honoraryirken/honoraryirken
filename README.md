@@ -3,7 +3,7 @@
 
 ******
 
-<img width="1600" height="120" alt="o8dkd3" src="https://github.com/user-attachments/assets/85c9b577-eb42-41f7-8562-e9a0ea504773" />
+<img width="1584" height="211" alt="tumblr_9cc9dcd1fc2d94ad6de4179c8b24870f_629adeb1_2048" src="https://github.com/user-attachments/assets/be68c39d-d673-40e8-8b6f-3d232eae41ac" />
 
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a></p>
@@ -16,5 +16,5 @@
 
 <p align="center">☆ I am an age regressor. Please interact with caution, for I don't have any specific skins to notify others when I am regressed.</p>
 
-<img width="1600" height="120" alt="seaval" src="https://github.com/user-attachments/assets/518209ce-d8e2-46cf-9165-9eb7ff087b28" />
+<img width="1584" height="211" alt="tumblr_9cc9dcd1fc2d94ad6de4179c8b24870f_629adeb1_2048" src="https://github.com/user-attachments/assets/22cdd947-7494-459a-a1d0-431b200b87fe" />
 
