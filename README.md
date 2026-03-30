@@ -14,7 +14,7 @@
 
 <p align="center">☆ I don't feel comfortable sharing my exact age. I will say that I am a teenager, however.</p>
 
-<p align="center">☆ I am a nonsharing Dark Enchantress Cookie riako. If you romantically yumeship with her, please DNI! ☆ I am also a selective sharing White Lily yumeshipper. If you romantically yumeship with her, IWC!</p>
+<p align="center">☆ I am a nonsharing Dark Enchantress Cookie riako and a selective sharing White Lily yumeshipper. I won't be weird if you have a skin of either of them, but if you do not wish to interact, you don't have to.</p>
 
 <p align="center">☆ I am an age regressor. Please interact with caution, for I don't have any specific skins to notify others when I am regressed.</p>
 
