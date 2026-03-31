@@ -16,7 +16,7 @@
 
 <p align="center">☆ I am a nonsharing Dark Enchantress Cookie riako and a selective sharing White Lily yumeshipper. I won't be weird if you have a skin of either of them, but if you do not wish to interact, you don't have to.</p>
 
-<p align="center">☆ I am an age regressor. Please interact with caution, for I don't have any specific skins to notify others when I am regressed.</p>
+<p align="center">☆ I am an age regressor. I play this game when regressed. There are times that I forget to use my designated skin when regressed. Please interact with caution due to this, and also interact with extreme caution when I am regressed.</p>
 
 <img width="1584" height="211" alt="tumblr_9cc9dcd1fc2d94ad6de4179c8b24870f_629adeb1_2048" src="https://github.com/user-attachments/assets/22cdd947-7494-459a-a1d0-431b200b87fe" />
 
