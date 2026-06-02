@@ -1,5 +1,5 @@
 > [!NOTE]
-> This is still a work in progress. For more information on myself, view my Strawpage!
+> This is still a work in progress. For more information on myself, view my Carrd!
 
 ******
 
@@ -8,9 +8,9 @@
 <p align="center">(divider by @quinnysnursery on Tumblr.)</p>
 
 
-<p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://honoraryirken.tumblr.com/">Tumblr</a> | <a href="https://mamasbabyangel.tumblr.com/">Agere Side Blog (also Tumblr)</a></p>
+<p align="center"><a href="https://honoraryirken.straw.page/">Carrd</a> | <a href="https://the-end-collective.tumblr.com/">Tumblr</a>
 
-<p align="center">☆ hullo! I go by many names, but I mainly go by Zim!</p>
+<p align="center">☆ hullo! you can collectively call us Bone or Doll!</p>
 
 <p align="center">☆ I don't feel comfortable sharing my exact age. I will say that I am a teenager, however.</p>
 
