@@ -8,7 +8,7 @@
 <p align="center">(divider by @quinnysnursery on Tumblr.)</p>
 
 
-<p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://pronouns.cc/@HonoraryIrken">Pronouns.CC</a>
+<p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://pronouns.cc/@HonoraryIrken">Pronouns.cc</a>
 
 <p align="center">☆ hullo! you can collectively call us Bone or Doll!</p>
 
