@@ -5,4 +5,4 @@
 
 <image align="right" src="https://github.com/user-attachments/assets/624090f0-6910-4b93-b551-df503311b072"/>
 
-<p align="right"> Bone or Bug . he / it </p>
+<p align="center"> Bone or Bug . he / it </p>
