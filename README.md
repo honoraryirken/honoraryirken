@@ -32,7 +32,7 @@ I am chronologically older than fourteen,, an older teen. I'm being pretty vague
   
 I hope I can get to know you!
 
-ps! please interact with caution at all times. I am sensitive and struggle with reading tone.</p>
+###### ps! please interact with caution at all times. I am sensitive and struggle with reading tone.</p>
 
 </div>
 
