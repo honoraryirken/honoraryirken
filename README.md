@@ -1,8 +1,16 @@
 > [!NOTE]
 > This is being completely redone! Please check back... eventually.
 
-<image align="left" src="https://github.com/user-attachments/assets/cd17acec-f3f5-40a9-bfb4-48145e801883" height="400"/>
+<p align="center"
+<p><img align="right" src="https://github.com/user-attachments/assets/509cb7c0-4302-4f0d-956f-1b29006f6a0a" </p>
 
-<image align="right" src="https://github.com/user-attachments/assets/624090f0-6910-4b93-b551-df503311b072"/>
+<br />
 
-<p align="center"> Bone or Bug . he / it </p>
+<image align="left" src=https://i.postimg.cc/TPnfCGyf/Sans-titre-35-20260831132044.png height="400"></p> 
+
+
+
+
+<p align="center"
+
+Matt ㅤ![](https://files.catbox.moe/5vhvtu.gif)ㅤ.ㅤHe  ㅤ  /  ㅤ  Pup  ㅤ only !
