@@ -2,11 +2,11 @@
 > This is somewhat of a work in progress! If it looks pretty bad, that's why.
 
 <p align="center"
-<p><img align="right" src="https://github.com/user-attachments/assets/509cb7c0-4302-4f0d-956f-1b29006f6a0a" </p>
+<p><img align="left" src="https://github.com/user-attachments/assets/509cb7c0-4302-4f0d-956f-1b29006f6a0a" </p>
 
 <br />
 
-<image align="left" src="https://github.com/user-attachments/assets/ba78d6e1-4755-49c0-bc75-bba708de6113" height="400"></p> 
+<image align="right" src="https://github.com/user-attachments/assets/ba78d6e1-4755-49c0-bc75-bba708de6113" height="400"></p> 
 
 
 <p align="center"
