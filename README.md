@@ -31,4 +31,4 @@ darkship + comship + proship + profic + anti-harassment <image align="center" sr
 
 <p align="center"
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://honoraryirken.straw.page) [pronouns.cc](https://pronouns.cc/@honoraryirken) [ata](https://honoraryirken.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://honoraryirken.straw.page)   [pronouns.cc](https://pronouns.cc/@honoraryirken)   [ata](https://honoraryirken.atabook.org/)
