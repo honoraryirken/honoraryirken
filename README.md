@@ -1,5 +1,5 @@
 > [!NOTE]
-> This is still a work in progress. For more information on myself, view my Strawpage.
+> This is being completely redone! Please check back... eventually.
 
 ******
 
