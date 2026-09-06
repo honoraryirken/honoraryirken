@@ -7,7 +7,7 @@
 
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://pronouns.cc/@HonoraryIrken">Pronouns.cc</a>
 
-<details>
+<p align="center"><details>
 <summary><ins>Warning!</ins></summary>
 
 I am very pro-fiction, anti-harassment, and pro-ship. I believe that, so long as you can separate them, that fiction does not affect reality. I am a comshipper and an occasional darkshipper.
