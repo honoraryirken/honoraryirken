@@ -8,13 +8,13 @@
 <p align="center"><a href="https://honoraryirken.straw.page/">Strawpage</a> | <a href="https://pronouns.cc/@HonoraryIrken">Pronouns.cc</a>
 
 <p align="center"><details>
-<summary><ins>Warning!</ins></summary>
+<p align="center"><summary><ins>Warning!</ins></summary>
 
 I am very pro-fiction, anti-harassment, and pro-ship. I believe that, so long as you can separate them, that fiction does not affect reality. I am a comshipper and an occasional darkshipper.
 
 Block me if you need to.
   
-</details>
+<p align="center"></details>
 
 <p align="center">☆ heya!! I go by Bone or Bug online,, and I use he/it. 
   
