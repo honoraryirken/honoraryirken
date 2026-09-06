@@ -3,14 +3,3 @@
 
 <p align="center"
 <p><img align="right" src="https://github.com/user-attachments/assets/509cb7c0-4302-4f0d-956f-1b29006f6a0a" </p>
-
-<br />
-
-<image align="left" src=https://i.postimg.cc/TPnfCGyf/Sans-titre-35-20260831132044.png height="400"></p> 
-
-
-
-
-<p align="center"
-
-Matt ㅤ![](https://files.catbox.moe/5vhvtu.gif)ㅤ.ㅤHe  ㅤ  /  ㅤ  Pup  ㅤ only !
