@@ -18,19 +18,6 @@ Block me if you need to.
   
 </details>
 
-☆ heya!! I go by Bone or Bug online,, and I use he/it. 
-  
-I'm a huge fan of Cookie Run... and I love Dark Enchantress Cookie! She's my wife (/srs) and I am hyper-nonsharing,, so doubles please dni!
-
-other than that, I don't have a DNI. however, I still block freely, and *will* block queerphobes, racists, ableists, sexists, those who are pro-harassment, and general exclusionists.
-
-I like to consider myself very inclusive, I don't care what you do or how you identify so long as you aren't hurting real people.
-  
-I'm pretty open to chats... but please w2i. i'm also very socially awkward. 
-
-I am chronologically older than fourteen,, an older teen. I'm being pretty vague since I don't want to share my exact age online, but still note that I am a minor.
-  
-I hope I can get to know you!
 
 ###### ps! please interact with caution at all times. I am sensitive and struggle with reading tone.</p>
 
