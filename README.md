@@ -14,7 +14,7 @@ I am very pro-fiction, anti-harassment, and pro-ship. I believe that, so long as
 
 Block me if you need to.
   
-<p align="center"></details>
+</details>
 
 <p align="center">☆ heya!! I go by Bone or Bug online,, and I use he/it. 
   
