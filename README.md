@@ -13,7 +13,7 @@
 
 <p align="center"
 
-Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤ.ㅤHe / It !
+Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It !
 
 
 <br />
@@ -22,14 +22,14 @@ Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f
 
 <p align="center"
   
-older teen  ,, smilk fictkin (doubles iayor) ,, dark enchantress yume <image align="center" src="https://github.com/user-attachments/assets/92764545-c035-46ff-bce1-adf04c62366c" height="30"/>
+older teen  ,, smilk fictkin (doubles iayor) <image align="center" src="https://github.com/user-attachments/assets/92764545-c035-46ff-bce1-adf04c62366c" height="30"/>
 
 
 <br />
 
 <p align="center"
   
-profic + anti-harassment <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
+dark enchantress yume ,, anti-harassment <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
 
 <br />
 
