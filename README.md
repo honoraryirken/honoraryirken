@@ -29,7 +29,11 @@ older teen  ,, smilk fictkin (doubles iayor) <image align="center" src="https://
 
 <p align="center"
   
-dark enchantress yume ,, anti-harassment <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
+dark enchantress yume ,, dbls dni <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
+
+<br />
+
+(other than that, no dni. I block freely. don't be a jerk lol)
 
 <br />
 
