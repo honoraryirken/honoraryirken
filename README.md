@@ -47,4 +47,4 @@ dark enchantress yume ,, dbls dni <image align="center" src="https://github.com/
 
 <p align="center"
   
-[strawpage](https://honoraryirken.straw.page)   [pronouns.cc](https://pronouns.cc/@honoraryirken)   [ata](https://honoraryirken.atabook.org/)
+[pronouns.cc](https://pronouns.cc/@honoraryirken)   [ata](https://honoraryirken.atabook.org/)   working on a rentry or a carrd
