@@ -33,6 +33,8 @@ dark enchantress yume ,, dbls dni <image align="center" src="https://github.com/
 
 <br />
 
+<p align="center"
+
 (other than that, no dni. I block freely. don't be a jerk lol)
 
 <br />
