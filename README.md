@@ -32,8 +32,7 @@ darkship + comship + proship + profic + anti-harassment <image align="center" sr
 <br />
 
 <p align="center"
-
-<img width="110" height="70" src="https://github.com/user-attachments/assets/44b8f5ed-b198-4e02-a62d-268a7905742d" />
+<p><img align="left" src="https://github.com/user-attachments/assets/9471e51c-f5b7-468c-a13a-2dc9638c848d"</p>
 
 
 <br />
