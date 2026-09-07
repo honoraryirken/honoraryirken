@@ -29,7 +29,7 @@ older teen  ,, smilk fictkin (doubles iayor) ,, dark enchantress yume <image ali
 
 <p align="center"
   
-darkship + comship + proship + profic + anti-harassment <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
+profic + anti-harassment <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
 
 <br />
 
