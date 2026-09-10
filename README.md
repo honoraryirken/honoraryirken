@@ -9,10 +9,6 @@
 
 <image align="right" src="https://github.com/user-attachments/assets/ba78d6e1-4755-49c0-bc75-bba708de6113" height="400"></p> 
 
-<br />
-
-<image align="right" src="https://github.com/user-attachments/assets/81a19551-cec0-45f7-a2e8-3aa410756954" height="40"/>
-
 
 <br />
 
@@ -52,6 +48,10 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <p align="center"
 <p><img src="https://github.com/user-attachments/assets/9471e51c-f5b7-468c-a13a-2dc9638c848d"</p>
+
+<br />
+
+<image align="right" src="https://github.com/user-attachments/assets/81a19551-cec0-45f7-a2e8-3aa410756954" height="100"></p>
 
 <br />
 
