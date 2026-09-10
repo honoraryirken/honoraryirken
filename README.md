@@ -50,6 +50,6 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <br />
 
-<p align="center"
+<p align="left"
   
 [pronouns.cc](https://pronouns.cc/@HonoraryIrken)  |  [ata](https://honoraryirken.atabook.org/)  |  working on a rentry or a carrd
