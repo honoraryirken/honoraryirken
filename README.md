@@ -11,6 +11,11 @@
 
 <br />
 
+<image align="right" src="https://github.com/user-attachments/assets/81a19551-cec0-45f7-a2e8-3aa410756954" />
+
+
+<br />
+
 <p align="center"
 
 Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It !
