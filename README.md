@@ -51,7 +51,7 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <br />
 
-<image align="right" src="https://github.com/user-attachments/assets/81a19551-cec0-45f7-a2e8-3aa410756954" height="200"></p>
+<image align="right" src="https://github.com/user-attachments/assets/81a19551-cec0-45f7-a2e8-3aa410756954" height="300"></p>
 
 <br />
 
