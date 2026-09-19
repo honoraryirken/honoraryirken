@@ -55,4 +55,4 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <p align="center"
   
-[ata](https://honoraryirken.atabook.org/)  |  working on a rentry or a carrd
+[ata](https://honoraryirken.atabook.org/)  |  [carrd](https://honoraryirken.carrd.com)
