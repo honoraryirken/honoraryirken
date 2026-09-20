@@ -46,10 +46,6 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <br />
 
-I hate discourse bro don't involve me in drama
-
-<br />
-
 <br />
 
 <p align="center"
