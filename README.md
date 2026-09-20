@@ -14,7 +14,7 @@
 
 <p align="center"
 
-Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It !
+Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It ... trans guy
 
 
 <br />
@@ -43,6 +43,10 @@ dark enchantress yume (dbls dni) ,, fount of knowledge yume (dbls iwc) <image al
 <p align="center"
 
 autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
+
+<br />
+
+I hate discourse bro don't involve me in drama
 
 <br />
 
