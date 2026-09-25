@@ -59,9 +59,9 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <br />
 
-<p align="center"
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=icd9tveezkg8dmpv24c8o2btr&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4e54b1&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=icd9tveezkg8dmpv24c8o2btr&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4e54b1&bar_color_cover=false">
   </a>
 </p>
 
