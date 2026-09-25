@@ -30,7 +30,7 @@ older teen  ,, smilk fictkin; I am him, he is me. (doubles iayor) <image align="
 
 <p align="center"
   
-dark enchantress yume (dbls dni) ,, fount of knowledge yume (dbls iwc) <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
+dark enchantress yume (dbls dni) ,, fount of knowledge yume (dbls iwc) ,, truthless recluse yume <image align="center" src="https://github.com/user-attachments/assets/62c59395-2019-4ea6-ae29-660f0fcd69f5" height="45"/>
 
 <br />
 
