@@ -55,4 +55,4 @@ autistic ,, I love dinosaurs and Minecraft sm ,, I like lots of things...
 
 <p align="center"
   
-[ata](https://vampire-of-fate.atabook.org/)  |  [carrd](https://vampire-of-fate.carrd.com)
+[ata](https://vampire-of-fate.atabook.org/)  |  [pronouns page](https://en.pronouns.page/@vampire-of-fate)
