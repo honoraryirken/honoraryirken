@@ -14,7 +14,7 @@
 
 <p align="center"
 
-Bone or Bug ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It ... trans guy
+Bone or Shadow Milk ㅤ![](https://github.com/user-attachments/assets/b0021f6f-caae-440f-8b18-2dc35514463c)ㅤHe / It ... trans guy
 
 
 <br />
